@@ -1,4 +1,4 @@
-# 🤑 Bulenox Coupon Codes up to 91% off – 2025 Update
+# 🤑 Bulenox Coupon Codes up to 91% off – August 2025 Update
 
 🔥 **100% Verified Promo Codes** | Save Up to **91% OFF** Funded Accounts
 
